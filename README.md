@@ -1,1 +1,2 @@
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31r6ifl6gdi2wmvxngkgamfz4ngi&cover_image=false&theme=novatorem&show_offline=true&background_color=000000&interchange=false&bar_color=ffffff&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31r6ifl6gdi2wmvxngkgamfz4ngi&redirect=true)
+![](https://media.discordapp.net/attachments/1163445794444165252/1410005173082001529/image.png?ex=68af7125&is=68ae1fa5&hm=1fa8a65a95e0012f5587f1f7b9acacb4cf87f1541d41ad9428c080ba5b6da240&=&format=webp&quality=lossless&width=1126&height=681)
+JAGAE COOKIE.ITS BEEN SO LONG. THANK YOU FOR BEING MY FIRTS A5 EPIC
